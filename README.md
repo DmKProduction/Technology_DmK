@@ -1,0 +1,2 @@
+# Technology_DmK
+IT_Singuliar_Technology
